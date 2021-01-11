@@ -6,7 +6,4 @@ Updates made on master on GitHub before rebase
 
 Julia's awesome website!!
 
-
-Editing one more time!
-
-Update locally
+My god I am so proud you have created such a beautiful website Ju!
